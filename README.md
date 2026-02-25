@@ -1,1 +1,1 @@
-# Lab2_IP
+Sichim Petru-Calin, Matrescu Andrei, Ciobotaru Dumitru
